@@ -9,4 +9,5 @@ Berikut daftar Volunter yang diterima:
 
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
 * Muhammad Nur, [Linkedin](https://www.linkedin.com/in/gilang-adhan/).
-* M. Nur, [Linkedin](https://www.linkedin.com/in/gilang-adhan/).
+* Salwa Saky, [Linkedin](https://www.linkedin.com/in/gilang-adhan/).
+
